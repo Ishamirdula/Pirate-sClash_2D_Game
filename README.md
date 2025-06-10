@@ -1,6 +1,6 @@
 **🏴‍☠️ Pirate's Clash: East Blue Saga**
 
-A 2D action game inspired by classic pirate anime adventures reimagined in a unique original style.
+A 2D action game inspired by classic pirate anime adventures reimagined with my unique way.
 
 **🎮 About the Game**
 
