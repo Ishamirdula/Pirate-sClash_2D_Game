@@ -33,7 +33,7 @@ When you're not battling on the high seas, take a break with two extra pirate-th
 **▶️ Play Now!**
 
 🌐 Try the game in your browser or download it from Itch.io:  
-👉 [**Play Pirate's Clash on Itch.io**](https://isha-syklz.itch.io/pirates-clash-east-blue-saga)
+👉 [**Play Pirate's Clash on Itch.io**](https://isha-skylz.itch.io/pirates-clash-east-blue-saga)
 
 🛠️ How It Was Made
 
